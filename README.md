@@ -1,0 +1,1 @@
+# Fragmento-del-Libro-Capital-de-Carlos-Marx-Fetichismo-
